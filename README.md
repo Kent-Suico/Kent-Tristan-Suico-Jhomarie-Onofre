@@ -1,1 +1,0 @@
-# Kent-Tristan-Suico-Jhomarie-Onofre
